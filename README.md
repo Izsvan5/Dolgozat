@@ -1,1 +1,1 @@
-# Dolgozat
+Belényesi István
